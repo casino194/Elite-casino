@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><strong>Elite Casino</strong></strong></h1>
+<h1 dir="ltr"><strong><strong>Elite casino - Türkiye'de oynamak için</strong></strong></h1>
 
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Elite Casino&#39;da oynayın</u></a></strong></p>
 <p>&nbsp;</p>
